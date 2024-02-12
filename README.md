@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working at [New Work SE](https://www.new-work.se/), 
 
-- 📫 How to reach me **hector.jaraba@new-work.se**
+- 📫 How to reach me **hjaraba.secpro@gmail.com**
 
 <p align="left">
 </p>
